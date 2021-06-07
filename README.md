@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Jhonny052611
+- 👀 I’m interested in game developing
+- 🌱 I’m currently learning nothing
+- 📫 How to reach me: mangiapisolino@gmail.com
